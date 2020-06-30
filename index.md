@@ -12,3 +12,5 @@ But many qualities have both in common, because both stand for justice and have 
 
 > Mein Bruder!
 > Ein Tag ohne einen Freund ist wie ein Topf, ohne einen einzigen Tropfen Honig darin.
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/d/d4/DBP_1987_1314_Karl_May%2C_Winnetou.jpg/440px-DBP_1987_1314_Karl_May%2C_Winnetou.jpg">
