@@ -9,3 +9,6 @@ But many qualities have both in common, because both stand for justice and have 
 * Bravery
 * Honesty
 * Cunning
+
+> Mein Bruder!
+> Ein Tag ohne einen Freund ist wie ein Topf, ohne einen einzigen Tropfen Honig darin.
